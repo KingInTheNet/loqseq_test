@@ -1,1 +1,1 @@
-- This is a newer page but I'm dumb so I made this longer than expected, and I also skippped all the instructions
+- This is a newer page but I'm dumb so I made this longer than expected, and I also skippped all the instructions but I was so dumb I can't make this work
